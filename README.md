@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Shanmugam Janani!
 
-**Aspiring Software Engineer • Quick Learner • Tech Enthusiast**
+** • Quick Learner • Adaptable & Versatile • Detail-Oriented & Professionalt**
 
 ---
 
