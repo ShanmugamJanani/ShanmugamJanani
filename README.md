@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Shanmugam Janani!
 
-** Quick Learner     • Adaptable & Versatile     • Detail-Oriented & Professionalt**
+** Quick Learner     • Adaptable & Versatile     • Detail-Oriented & Professionalt **
 
 ---
 
