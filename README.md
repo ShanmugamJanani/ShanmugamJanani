@@ -41,7 +41,7 @@ I thrive in dynamic environments and pride myself on being a fast learner. I enj
 
 Feel free to reach out
 
-LinkedIn : (linkedin.com/in/shanmugam-janani-5800872b4)
+LinkedIn : [Shanmugam Janani] (https://www.linkedin.com/in/shanmugam-janani-5800872b4)
 Email : (mjanajanu555@gmail.com)
 
 ---
